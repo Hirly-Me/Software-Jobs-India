@@ -4,7 +4,7 @@
 
 Open software engineering and data jobs located in India.
 
-**20,483 open jobs** match this list today; the newest 250 are below, newest first. Last updated Nov 16, 2026.
+**20,483 open jobs** match this list today; the newest 250 are below, newest first. Last updated Nov 17, 2026.
 
 > **Get matched to these jobs.** Upload your resume on [hirly](https://hirly.me/?utm_source=github&utm_medium=joblist&utm_campaign=software-jobs-india&utm_content=cta) to see how it matches roles like these.
 
